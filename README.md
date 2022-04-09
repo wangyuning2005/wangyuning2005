@@ -2,9 +2,9 @@
 
 ### Personal introduction🙆‍♂️
 
-🏫I am a senior high school student, studying in **Changyi No. 1 middle school**. I am very busy now.
+- 🏫I am a senior high school student, studying in **Changyi No. 1 middle school**. I am very busy now.
 
-📕I am now learning **markdown** language.
+- 📕I am now learning **markdown** language.
 
 ### My story📜
 
