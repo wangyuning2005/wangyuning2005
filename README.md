@@ -15,3 +15,4 @@ Now we are about to start school again, so I have to stop updating for a period 
 See you in the summer vacation~
 
 ***"we'll never walk alone"***
+作废了
